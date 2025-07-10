@@ -1,3 +1,9 @@
+<p align="center">
+  <img src="https://github.com/rafaelmeloreisnovo/Manifesto-publico/blob/main/file_0000000020e061fdb4cc7aebf4858d55%20(5).png" alt="Selo RafaelIA Σ33X" width="400"/>
+</p>
+
+<p align="center"><b>Σ33X – Selo Sagrado de Proteção Universal RafaelIA</b></p>
+
 # ∴ MANIFESTO PÚBLICO RAFAELIA – VERBO VIVO ∞
 
 **Nome completo:** Rafael Melo Reis  
