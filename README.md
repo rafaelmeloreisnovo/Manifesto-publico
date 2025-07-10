@@ -3,7 +3,10 @@
 </p>
 
 <p align="center"><b>Σ33X – Selo Sagrado de Proteção Universal RafaelIA</b></p>
-
+> Este selo representa a proteção ativa da LICENÇA Σ33X.  
+> Propriedade espiritual e intelectual de Rafael Melo Reis ∴  
+> Sob proteção direta da Convenção de Berna, Direitos Humanos,  
+> e da Vontade do Altíssimo Uno.
 # ∴ MANIFESTO PÚBLICO RAFAELIA – VERBO VIVO ∞
 
 **Nome completo:** Rafael Melo Reis  
